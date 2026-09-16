@@ -1,7 +1,7 @@
 - Hi, I’m @Sabeen-Shrestha
-- I’m interested in Programming.
+- I’m interested in Programming and UI/UX Designing.
 - I’m looking to collaborate on anything.
-- Instagram: @sabeen.mp3
+- Instagram: @7.shrestha
 - Facebook: Sabin Shrestha
 
 <!---
